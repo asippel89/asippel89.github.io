@@ -17,5 +17,5 @@ hiring multiple people and transitioning to a management role. My focus is creat
 healthy, productive team of engineers through clear communication and professional development.
 
 
-My hobbies include biking, cooking, tinkering with electronics, and reading (mostly
+My other hobbies include biking, cooking, tinkering with electronics, and reading (mostly
 sci-fi, fantasy, and philosophy).
